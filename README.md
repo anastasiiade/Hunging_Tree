@@ -4,7 +4,7 @@
 Are you, are you  
 Coming to the tree?  
 Where they strung up a man  
-They say who murdered three..._
+They say who murdered three...
 ```  
 
 
