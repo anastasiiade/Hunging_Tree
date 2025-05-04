@@ -9,3 +9,11 @@ They say who murdered three...
 
 
 <img width="459" alt="image" src="https://github.com/user-attachments/assets/a37a94a9-0390-4475-9a00-11f0fc0096ef" />
+
+    
+
+  
+
+### UPD. AI-mode  
+  
+<img width="759" alt="image" src="https://github.com/user-attachments/assets/4e20f286-eae5-4977-b2f0-3df2cdf18866" />
